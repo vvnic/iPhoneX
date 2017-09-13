@@ -1,2 +1,2 @@
 # iPhoneX
-today iWatch3 and iPhoneX is bron
+today is iWatch3 and iPhoneX's birthday
